@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @ashneet1
-- 📫 How to reach me ... at ashneetnagi21@gmail.com
+
